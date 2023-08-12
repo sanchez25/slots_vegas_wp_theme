@@ -1,0 +1,1 @@
+# slots_vegas_wp_theme
